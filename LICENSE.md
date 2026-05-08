@@ -1,4 +1,4 @@
-
+Alfred for macOS updated Integration - calendar integration and widgets offers the most advanced Alfred for macOS integration, with calendar integration and widgets. Ideal for
 
 
 
